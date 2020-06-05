@@ -39,6 +39,6 @@ With a lot of creative license and updating from
 ursablindness.tumblr.com
 reddit.com/user/NeurotoxicNihilist
 
-Lists compiled and edited by Max
+Lists compiled by Max
 
 code by Kevin Burkeland
